@@ -6,7 +6,7 @@
 #### 6
 #### 7 i want to go home
 #### 8
-#### 9 Github is really good 
+#### 9 GitHub is awesome
 #### 10
 #### 11
 #### 12
